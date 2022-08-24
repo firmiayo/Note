@@ -1,7 +1,1 @@
-# first
-wtf you are successful!
-fuck youman
-
-
-
-yes！！！！！
+# 波比的学习笔记🈲
